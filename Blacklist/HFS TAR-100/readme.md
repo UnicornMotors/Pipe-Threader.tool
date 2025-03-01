@@ -1,0 +1,1 @@
+- [$33 Pipe Threader Vs. Ridgid Pipe Threader. HFS TAR-100 and Ridgid 12-R Pipe Threader Tools Compared](https://youtu.be/VNYCI8p5EJk)
